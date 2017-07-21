@@ -1,1 +1,1 @@
-im a big big girl, in a big big world
+in a big big world
